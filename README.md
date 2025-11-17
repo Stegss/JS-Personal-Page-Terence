@@ -1,1 +1,1 @@
-# My 90s Personal Homepage Terrance Edition
+# My 90s Personal Homepage Terence Edition
